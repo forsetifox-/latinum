@@ -1,0 +1,1 @@
+"Nature decays, but latinum lasts forever."
